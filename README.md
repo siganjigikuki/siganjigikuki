@@ -1,4 +1,4 @@
-## Hi there 👋
+im github noob idk how to do this
 
 <!--
 **siganjigikuki/siganjigikuki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
