@@ -1,5 +1,4 @@
-im github noob idk how to do this
-
+Previously Riflora ( peak ship btw )  idk how to do this so wip for now
 <!--
 **siganjigikuki/siganjigikuki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
