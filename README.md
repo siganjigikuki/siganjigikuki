@@ -4,4 +4,3 @@
 <p align="center"> <td>$${\color{orange} \verb||read ‎ rentry}$$</td>
 
 
-it fucking broke
