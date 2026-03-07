@@ -11,7 +11,7 @@ $${\color{orange} Read.Me \space}$$
 <align="right">
 <a href="https://timekeep.straw.page/"><img src="https://files.catbox.moe/3f0h75.png" alt="Strawpage"width="100" height="100">
 <align="right">
-<a href="https://rentry.co/timekeeper-cookie"><img src="https://files.catbox.moe/420k3t.png" alt="Rentry"width="100" height="100">
+<a href="https://rentry.co/croissant-cookie"><img src="https://files.catbox.moe/420k3t.png" alt="Rentry"width="100" height="100">
 <p align="center">
 
   `ask to c+h . dont be a stranger!(Even if you are) interact with me (please)`
