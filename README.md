@@ -3,7 +3,7 @@ $${\color{orange} Read.Me \space}$$
 <div align="center">
 
 
-![huh](https://github.com/siganjigikuki/ahahahahaha/blob/101e6e5dd136008dfe98bcf252b950156f89406c/ezgif-4e78371a9754e4b6.gif)
+![huh](https://github.com/siganjigikuki/siganjigikuki/blob/a41d91be640d41fc73214ad73170332d4691e0b8/ezgif-4e78371a9754e4b6.gif)
 <div align="center">
 
 <p align="center">
