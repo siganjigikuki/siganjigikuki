@@ -1,11 +1,20 @@
 <div align="center">
-<img src="https://files.catbox.moe/46csne.webp" width="300" height="300"/></p>
-<img src="https://64.media.tumblr.com/6a31152b717981b705bf5f82dc039ead/6068dd1e79015495-3e/s1280x1920/9698fd15eb866ba21be7e168714ccf5f914e93ca.gifv" width="360" height="50"/></p>
-</div>
-<br>
-<div align="center"> 
-in progress, art cr : yumi0201 , pfp credit ectonika
-<div align="center"> 
- 
-$${\color{orange} read \space}$$ [rentry](https://rentry.co/croissant-cookie)
- 
+
+
+![huh](https://github.com/siganjigikuki/ahahahahaha/blob/101e6e5dd136008dfe98bcf252b950156f89406c/ezgif-4e78371a9754e4b6.gif)
+<div align="center">
+
+<p align="center">
+<a href="https://timekeeper.atabook.org/"><img src="https://files.catbox.moe/7uhh61.png" alt="Atabook"width="100" height="100">
+<align="right">
+<a href="https://timekeep.straw.page/"><img src="https://files.catbox.moe/3f0h75.png" alt="Strawpage"width="100" height="100">
+<align="right">
+<a href="https://rentry.co/timekeeper-cookie"><img src="https://files.catbox.moe/420k3t.png" alt="Rentry"width="100" height="100">
+<p align="center">
+
+  `ask to c+h . dont be a stranger!(Even if you are) interact with me (please)`
+
+  
+  i like $${\color{orange} timekeeper \space}$$ if you couldnt tell
+  
+  <img width="360" height="50" alt="?" src="https://github.com/siganjigikuki/ahahahahaha/blob/e35aaf0428c3ee5162f8a877f96b457b44a9ac68/whydoihavetoplaygamblingwithwhethermygifsworkornot.webp" />
