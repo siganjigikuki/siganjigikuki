@@ -19,4 +19,4 @@ $${\color{orange} Read.Me \space}$$
   
   i like $${\color{orange} timekeeper \space}$$ if you couldnt tell
   
-  <img width="360" height="50" alt="?" src="https://github.com/siganjigikuki/ahahahahaha/blob/e35aaf0428c3ee5162f8a877f96b457b44a9ac68/whydoihavetoplaygamblingwithwhethermygifsworkornot.webp" />
+  <img width="360" height="50" alt="?" src="https://github.com/siganjigikuki/siganjigikuki/blob/2f1adbb7ac8de615ed0566f77cf097ec2439f50c/whydoihavetoplaygamblingwithwhethermygifsworkornot.webp" />
