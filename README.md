@@ -9,7 +9,7 @@ $${\color{orange} Read.Me \space}$$
   
 [![ATABOOK](https://i.postimg.cc/v8J5P9jL/Ata-BUTTON.png)](https://timekeeper.atabook.org) [![STRAWPAGE](https://i.postimg.cc/rF5x7sXD/ITSBROKEN.png)](https://tkc.straw.page) [![RENTRY](https://i.postimg.cc/44Dp8tM6/SCREAMDSF.png)](https://rentry.co/croissant-cookie)
 
-int ! dont be a stranger . ask before c+h . read rentry 
+int ! dont be a stranger . ASK before c+h . read rentry 
   
   i like $${\color{orange} timekeeper \space}$$ if you couldnt tell
   
